@@ -9,6 +9,8 @@
 
 地址1: [https://bitbucket.org/sesex/seurl/](https://bitbucket.org/sesex/seurl/)
 
+地址2: [https://github.com/51sesex/home](https://github.com/51sesex/home)
+
 地址2: [https://sesex.dog](https://sesex.dog)
 
 海外永久地址(需翻墙)
