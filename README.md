@@ -11,7 +11,7 @@
 
 地址2: [https://github.com/51sesex/home](https://github.com/51sesex/home)
 
-地址2: [https://sesex.dog](https://sesex.dog)
+地址3: [https://sesex.dog](https://sesex.dog)
 
 海外永久地址(需翻墙)
 
